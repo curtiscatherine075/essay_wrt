@@ -1,6 +1,6 @@
 How to do an essay?
 
-We share with you tips and tricks on how to motivate yourself to do your homework. Before starting reading, I recommend that you familiarize yourself with the [assignment writing help](https://writingassignment.net). Always choose services carefully to help you complete your assignments.
+We share with you tips and tricks on how to [motivate yourself](https://www.khanacademy.org/khan-for-educators/resources/parents-mentors-1/helping-your-child/a/how-to-motivate-students-who-are-distance-learning-during-covid) to do your homework. Before starting reading, I recommend that you familiarize yourself with the [assignment writing help](https://writingassignment.net). Always choose services carefully to help you complete your assignments.
 
 To do an essay, it's very simple:
 
