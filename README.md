@@ -23,7 +23,9 @@ You will have to produce an organized reflection on a specific subject that is i
 The subject can be:
 
 -a question
+
 -a theme or concept
+
 -a quote
 
 If you have multiple topics to choose from, select the one that inspires you the most and that you have the most knowledge about. You will need to choose it quickly if you have to do an essay during an exam lasting a few hours (within the first 10 minutes).
@@ -45,9 +47,13 @@ The introduction of a dissertation must follow a strict structure. It introduces
 The parts of an essay introduction are:
 
 -A leader or catchphrase.
+
 -The subject statement.
+
 -Definition of terms and reformulation of the subject.
+
 -The problem.
+
 -The announcement of the plan.
 
 5. Write the essay development
