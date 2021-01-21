@@ -5,10 +5,15 @@ We share with you tips and tricks on how to motivate yourself to do your homewor
 To do an essay, it's very simple:
 
 -Read and analyze the subject
+
 -Find the problem
+
 -Plan the essay
+
 -Write the introduction
+
 -Write the development
+
 -Make the conclusion
 
 1. Read and analyze the subject
